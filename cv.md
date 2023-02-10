@@ -21,5 +21,7 @@ ___
 ## **Experience**
 
 Have been working in education for 7 years as a teacher of English language
+___
+## **Languages:** 
 
-## **Languages:** native Russian, English B2, German A1
+native Russian, English B2, German A1
