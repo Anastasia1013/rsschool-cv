@@ -2,7 +2,8 @@
 **ANASTASIA MAZHARA**
 
 
----![Uploading IMG_2190.PNG…]()
+---
+
 
 ## **Contacts:** 
 ### email plotnikova.1993@list.ru 
