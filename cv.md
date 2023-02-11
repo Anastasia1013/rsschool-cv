@@ -1,6 +1,12 @@
-# **Personal information:** Anastasia Mazhara
+# **Personal information:** 
+**ANASTASIA MAZHARA**
+
+
+---![Uploading IMG_2190.PNG…]()
+
 ## **Contacts:** 
 ### email plotnikova.1993@list.ru 
+
 phone number +79537114808
 
 GitHub.com Anastasia1013
